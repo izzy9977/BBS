@@ -1,2 +1,3 @@
 # BBS
 Big Beautiful Shield....when big brother (the google) wants to pry in to your happenings what do you do? You unsheath your B B S and lettem' try. Cuz eventhough you are using google pay while downloading google plus from the play store while finger banging bezos's ex they can not do anything about it...Big Beautiful Shield
+Well, that a the idea anyway. I want to have the convenience of google apps without the feel of your creepy uncle Jenkins off in the corner and I think I am close to figuring it all the way out. No vpn or proxy or even VMWARE needed. Will be over the next two weeks loading tessarac??? Sp? And where im at hook it up if you know something I do not.
